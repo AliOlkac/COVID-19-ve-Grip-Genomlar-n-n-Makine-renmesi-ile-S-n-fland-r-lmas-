@@ -1,0 +1,1 @@
+# COVID-19-ve-Grip-Genomlar-n-n-Makine-renmesi-ile-S-n-fland-r-lmas-
